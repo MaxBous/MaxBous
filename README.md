@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on advanced machine learning techniques<br>⚡ I can solve the rubiks cube and like to play chess
+🔭 Recent graduate who is currently working on a variety of analytics and data science projects<br> 🛡️ Openly looking for full time positions that suit my skill set⚡ I can solve the rubiks cube in 15 seconds and like to play chess<br> 
 
 
 ## 🌐 Socials:
